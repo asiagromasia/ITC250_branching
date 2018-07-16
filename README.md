@@ -6,3 +6,4 @@ Those in power set up a trap for Shadow, and Shadow did come. Covered with count
 
 Shadow woke up in a hospital. 
 
+A woman in black was sitting next to Shadow. She said,"I have been waiting for hou for a long time."
