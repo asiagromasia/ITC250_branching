@@ -8,4 +8,6 @@ Shadow woke up in a hospital. He realized he was hurt but didn't remember anythi
 
 He took a lot of Advil because he was still in a lot of pain. It was a great struggle for him to even walk. He found a spare set of crutches and fled the building, determined to get revenge and those who had wronged him...
 
+He noticed that there is a wound of strange shape on his chest. He's pretty sure that this wound was caused by something like a sickle， and he happened to know somebody use that as weapon.
+
 A woman in black was sitting next to Shadow. She said,"I have been waiting for hou for a long time."
