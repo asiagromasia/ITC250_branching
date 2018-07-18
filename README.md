@@ -21,3 +21,8 @@ Ha! Is she trying to use me? How does she know I've been hurt and how does she k
 Shadow stood up，“lead the way.”
 
 Shadow asked himself Why did I choose this dangerous lifestyle? All I really want to do is watch Wheel of Fortune and eat chocolate cake. And look at me- I am following stranger now without hesitation.... 
+
+Then he saw a blade came through his heart，and the last thing he heard was “Good old Pudge wanted to spare you. He said he saw your head took a heavy hit and chances are you woundn't remember anything. Saddly you do remeber. I will never allow you do any harm to my dear husband. Farewell, Shadow." 
+
+
+Moral: Remember always to listen to your guts!
