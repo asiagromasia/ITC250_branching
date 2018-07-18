@@ -19,3 +19,5 @@ Ha! Is she trying to use me? How does she know I've been hurt and how does she k
 
 "I'm not your enemy,"the women kept saying,"If I was, you'd be dead already."
 Shadow stood up，“lead the way.”
+
+Shadow asked himself Why did I choose this dangerous lifestyle? All I really want to do is watch Wheel of Fortune and eat chocolate cake. 
