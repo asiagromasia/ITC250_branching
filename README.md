@@ -16,3 +16,6 @@ Who the hack she is? He was thinking....
 "The only person who uses sickle as weapon in this town is 'Pudge'."The women continues speaking,"I will be on your side if you are planning to revenge him."
 
 Ha! Is she trying to use me? How does she know I've been hurt and how does she know how mine wound look like? How did SHE found me????!!! And actually who is it? 
+
+"I'm not your enemy,"the women kept saying,"If I was, you'd be dead already."
+Shadow stood up，“lead the way.”
